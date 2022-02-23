@@ -1,1 +1,1 @@
-This web map features 6 different locations around the world that have some kind of significance to me. 
+This web map features 6 different locations around the world that are significant to me.
